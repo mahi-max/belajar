@@ -1,2 +1,3 @@
 # belajar
 Just another repository
+Lagi belajar ster.... Mohon ilmu nya biar pinter selerti para master" sekalian he..... 
